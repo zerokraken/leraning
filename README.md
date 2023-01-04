@@ -1,1 +1,1 @@
-# leraning
+![f80deb25f78528bdd8d6440bdea2cb12 1](https://user-images.githubusercontent.com/67922506/210523463-aabf3606-195f-431e-860f-aa0889e12512.png) ![665ade4016eb993a9b9a6ad892fa8289 1](https://user-images.githubusercontent.com/67922506/210523584-21ffd68e-fa3d-4fe3-ae9f-f08498c16e54.png)
